@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sanjaysunny851
 - 👀 I’m interested in Coding 
-- 🌱 I’m currently learning programing language 
+- 🌱 I’m currently a student 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
